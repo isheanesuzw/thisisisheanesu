@@ -1,0 +1,2 @@
+- 👋 Hi, I’m Isheanesu
+- 👀 I’m interested in building the world's most advanced E-commerce AI marketing tool (I  made this profile specifically for that!)
